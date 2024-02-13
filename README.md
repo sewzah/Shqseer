@@ -3,9 +3,9 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
-- ✔Owner off .9t9 ✔
+- ✔Owner off .𝐍𝐒𝐓 ✔
 +19 K/D   //CMBMS//
 :crown: ALL THE WAY TO THE TOP :crown:
-30k+  Followers !
-:arrow_down: Vbuck & Free Soda :arrow_down:   https://linktr.ee/idzzye
+110k+  Followers !
+:arrow_down: Vbuck & Free Soda :arrow_down:   https://linktr.ee/shqseer
 --->
