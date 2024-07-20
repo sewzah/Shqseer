@@ -3,9 +3,9 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
-- ✔Owner off .𝐀𝐊𝐀𝐒𝐇 ✔
-+19 K/D   //CMBMS//
+- ✔Owner off .OP!OM ✔
+  6 K/D   //CMBMS//
 :crown: ALL THE WAY TO THE TOP :crown:
-110k+  Followers !
-:arrow_down: Vbuck & Free Soda :arrow_down:   https://linktr.ee/shqseer
+260k+  Followers !
+:arrow_down: Vbuck & Free Soda :arrow_down:   https://guns.lol/shqseer
 --->
