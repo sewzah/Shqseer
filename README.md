@@ -6,6 +6,6 @@
 - ✔Owner off .OP!OM ✔
   +6K/D   //CMBMS//
 :crown: ALL THE WAY TO THE TOP :crown:
-260k+  Followers !
-:arrow_down: Vbuck & Free Soda :arrow_down:   https://guns.lol/shqseer
+  200k+  Followers !
+:arrow_down: Vbuck & Free Soda :arrow_down:   https://guns.lol/sewzah
 --->
